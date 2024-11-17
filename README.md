@@ -12,4 +12,8 @@
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
 
 ![pngwing com (3)](https://github.com/user-attachments/assets/d661718c-fdd8-4eaf-8c07-ba62460e9641)
-> I'm Developer Ajax 👋🏻 
+> I'm Developer Ajax 👋🏻
+
+# Note 
+> And if you also have any developing skill or hacking skill then contact us and get a chance to work with us. 🏅
+
